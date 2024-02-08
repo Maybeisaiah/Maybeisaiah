@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Maybeisaiah
-- 👀 I’m interested in FootBall
+- 👀 I’m interested in Football
 - 🌱 I’m currently learning College Algebra and programming logic
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me IsaiahVazquez10199@gmail.com
